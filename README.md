@@ -1,0 +1,8 @@
+# BTS
+JIN
+SUGA
+JHOPE
+RM
+JIMIN
+V
+JK
